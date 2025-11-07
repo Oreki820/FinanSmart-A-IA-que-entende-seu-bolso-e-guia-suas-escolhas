@@ -1,0 +1,1 @@
+# FinanSmart-A-IA-que-entende-seu-bolso-e-guia-suas-escolhas
